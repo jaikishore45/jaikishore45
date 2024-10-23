@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jaikishore
+- 👋 Hi, I’m @JAIKISHORE NANDAKUMAR
 - 👀 
 - 🌱 
 - 💞️ 
